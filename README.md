@@ -1,28 +1,18 @@
 
 # SIMPLICIDADE
 
-Que neste dia
+Desejo que hoje retorne para você toda bondade que fez as pessoas.
 
-Retorne a você
+E que ela entre em sua alma de uma vez só, fazendo te fazendo sentir uma explosão de bon sentimentos.
 
-Toda a bondade que fizestes a tantas pessoas.
-
-
-E que ela entre em sua alma de uma só vez,
-
-Fazendo com que sinta uma comoção de sentimentos agradáveis
-
-Inspirando-te a viver mais, e mais feliz.
-
+Que isso te inspire a viver mais, e mais feliz.  
 Realizar mais, e melhor.
 
-Sentir mais, e mais intensamente.
-
+Sentir mais, e com mais intensidade.   
 Sorrir mais, e ter mais motivos para sorrir.
 
 
-Amar tudo e a todos.
-
+Amar tudo e a todos.  
 Conduza-te à paz, e faça sentir-se bem.
 
 Que você enxergue as grandes amizades que te rodeiam.
