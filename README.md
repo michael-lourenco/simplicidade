@@ -3,7 +3,7 @@
 
 Desejo que hoje retorne para você toda bondade que fez as pessoas.
 
-E que ela entre em sua alma de uma vez só, fazendo te fazendo sentir uma explosão de bon sentimentos.
+E que ela entre em sua alma de uma vez só, fazendo você sentir uma explosão de bons sentimentos.
 
 Que isso te inspire a viver mais, e mais feliz.  
 Realizar mais, e melhor.
@@ -11,45 +11,33 @@ Realizar mais, e melhor.
 Sentir mais, e com mais intensidade.   
 Sorrir mais, e ter mais motivos para sorrir.
 
+Ame tudo e a todos.  
 
-Amar tudo e a todos.  
-Conduza-te à paz, e faça sentir-se bem.
+Desejo que enxergue as grandes amizades que te rodeiam. 
 
-Que você enxergue as grandes amizades que te rodeiam.
+Que suas dúvidas desapareçam, encontrando respostas.  
 
-E que tire de você as dúvidas, e te de respostas.
+Que limpe sua mente.  
+Que purifique seu corpo.  
+Que liberte sua alma.  
 
-Que limpe sua mente,
+Que vocẽ persista até alcançar seus objetivos.  
 
-Que purifique seu corpo,
+Que multiplique seu valor.  
 
-Que liberte sua alma!
+Que seja dono(a) das suas emoções.  
 
-Que tu persistas até alcançar teus objetivos
+Libere toda a sua criatividade, e desperte o seu desejo de crescer.  
 
-Que multiplique seu valor
+Que impregne em você, à vontade e a ação de arriscar.  
 
-E seja dono(a) de suas emoções.
+Que tenha a coragem e garra necessárias para enfrentar seus medos e anseios.  
 
-
-Libere toda a tua criatividade, e desperte o teu desejo de crescer.
-
-Que impregne em você, à vontade e a ação de arriscar,
-
-E lhe dê a coragem e garra necessárias para enfrentar teus medos e anseios.
-
-
-Que tenha força para enfrentar teus desafios
-
-E suportar a dor,
-
-Seja ela física ou mental
-
+Que tenha força para enfrentar teus desafios e suportar a dor, seja ela física ou mental
 
 Que a partir deste dia, sua motriz seja denominada ação.
 
-E aja em todas as situações. Aja agora!
-
+Etão aja em todas as situações. Aja agora!
 
 Utilize o amor para cativar as pessoas e o mundo,
 
