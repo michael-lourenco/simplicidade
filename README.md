@@ -1,0 +1,2 @@
+# simplicidade
+pensamentos sobre simplicidade
